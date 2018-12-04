@@ -1,0 +1,2 @@
+# gi-y-d-n-k-nh
+Nhắc đến giấy dán kính Hoa Phát chống nắng cách nhiệt cho nhà kính thì phải biết đến sản phẩm giấy dán kính phản quang, hay còn được gọi là phim cách nhiệt Đài Loan. Đây là sản phẩm dán chống nóng cho nhà kính rất được ưa chuộng tại Việt Nam, với khả năng chống nắng cách nhiệt cao cùng với giá thành rất phải chăng phù hợp vói túi tiền người Việt, sử dụng phim dán kính phản quang đã và đang là giải pháp ưu Việt nhất. #giay_dan_kinh #decal_dan_kinh #dan_kinh_hoa_phat #phim_cach_nhiet 
